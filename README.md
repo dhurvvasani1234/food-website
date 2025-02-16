@@ -40,7 +40,7 @@ https://youtu.be/XbRoK7bY0A4
 ## 📧 Contact
 For any inquiries or feedback, reach out via:
 - 📩 Email: drvasani1031@gmail.com
-- 🔗 GitHub: [your-username](https://github.com/dhruvvasani1234)
+- 🔗 GitHub: (https://github.com/dhurvvasani1234)
 
 ---
 ### 🎉 Enjoy the Food Experience!
